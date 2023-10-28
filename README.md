@@ -12,4 +12,4 @@ Meu nome é laura maria
   
   @lauramaria2006
 
-![](https://media.tenor.com/CXc-0JjabvAAAAAC/bts-reaction-jungkook-meme.gif)
+![](https://media.tenor.com/-2cjgpkdj2sAAAAM/jungkook-jungkook-3d.gif)
